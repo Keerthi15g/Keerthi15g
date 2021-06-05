@@ -1,9 +1,8 @@
-Hello! I’m Keerthi @keerthi1512g
+Hello! I’m Keerthi @MissKeerthi
 
-I’m currently learning challenging topics like Particle Physics⚛️, Astronomy🌌, Quantum Computing🚀 and Competitive Programming👩🏽‍💻 while also preparing to go to college🏛️ this year!
+I’m currently learning challenging topics like Particle Physics⚛️, Astronomy🌌, Music Theory🎶, Quantum Computing🚀 and Competitive Programming👩🏽‍💻 while also preparing to go to college this year!
 
 💞️ I’m looking to collaborate on things that are related to my interests and also anything that is impactful and make the Earth a better place! 🌿🌲🌏🔭🛰️🌠✨
-
 📫 How to reach me: Drop me an email at keerthi1512g@gmail.com and you will hear back from me straight away! :)
 
 <!---
